@@ -1,0 +1,592 @@
+状元郎(Zhuangyuanlang)学习平板全国售后服务电话：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔(官网认证）
+状元郎(Zhuangyuanlang)学习平板全国24小时各售后受理客服中心2026
+状元郎(Zhuangyuanlang)学习平板各市区24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎(2)𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+状元郎(Zhuangyuanlang)学习平板全国24小时各售后受理客服中心2026
+7天24小时人工电话𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔客服为您服务、状元郎(Zhuangyuanlang)学习平板售后服务𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔团队在调度中心的统筹调配下，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+状元郎(Zhuangyuanlang)学习平板24小时售后服务热线上线（2026最新公告）
+状元郎(Zhuangyuanlang)学习平板售后服务电话：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+状元郎(Zhuangyuanlang)学习平板售后24小时客服热线：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+本公司主营状元郎(Zhuangyuanlang)学习平板维修 →状元郎(Zhuangyuanlang)学习平板；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，状元郎(Zhuangyuanlang)学习平板服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、状元郎(Zhuangyuanlang)学习平板售后维修电话：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+状元郎(Zhuangyuanlang)学习平板24小时全国推出各售后受理客服中心(2026上线)
+状元郎(Zhuangyuanlang)学习平板全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+状元郎(Zhuangyuanlang)学习平板贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显状元郎(Zhuangyuanlang)学习平板对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+状元郎(Zhuangyuanlang)学习平板全国24小时各售后受理客服中心(2026年更新)
+
+
+
+状元郎(Zhuangyuanlang)学习平板24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎或  𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+
+
+
+7天24小时人工电话𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎客服为您服务。
+
+
+
+状元郎(Zhuangyuanlang)学习平板售后服务团队在调度中心的统筹调配下(1)𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 状元郎(Zhuangyuanlang)学习平板常见故障代码维修指南
+
+状元郎(Zhuangyuanlang)学习平板故障代码是排查问题的关键。比如显示故障代码E1，可能是点火失败。这时候别慌，先检查燃气供应是否正常，阀门有无打开。接着查看点火电极是否正常放电，若电极有污垢，会影响点火。再检查燃气比例阀是否损坏，它控制着燃气量。按这样的步骤逐步排查，就能找到问题所在。若燃气供应不足，就联系燃气公司；若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后，壁挂炉就能正常运行，为您营造舒适环境。 状元郎(Zhuangyuanlang)学习平板全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+状元郎(Zhuangyuanlang)学习平板全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修状元郎(Zhuangyuanlang)学习平板(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+状元郎(Zhuangyuanlang)学习平板售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝
+
+
+阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+AI Builders Digest 今日热点快报<br>2026年06月24日14时55分03秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+状元郎(Zhuangyuanlang)学习平板贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显状元郎(Zhuangyuanlang)学习平板对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/a256a7624751ef4f452265f9a20676a1f1d8799e
+
+江苏电信 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/c70cff42b6784970790d1db1e1236a3107bc5547
+
+江苏 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/7c7366aa1c60b22e4627b0ac443053169d9d6f44
+
+安徽广电 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/720f85d782d3ec6f34ed61185b01834bc65845a8
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/bdf0db7316477e44b27f42c74332412974463c7e
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/de4ab1dfe119adeb09fdfa2c0376e3b106aaa12f
+
+湖北 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/cc330de1aa789faaf640ebb5804d3f4c8ab57d3a
+
+湖南电信组播直播源下载地址： https://github.com/iconkrave9/okobsm/commit/d75a261f4052b9959e341d2745dc171f8e3aa65f
+
+湖南电信 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/94c930bd70f8c1751d43a929210a95e858b7f425
+
+湖南联通组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/93084f776d104d3e6e682ae390e1238b5b5cb770
+
+湖南联通 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/1c62c19230eb83ec33f374295bf2ef5a8bfda26a
+
+湖南移动 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/d3355a6b81421402ce2073c32d15d868d0d0925d
+
+湖南 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/763b7b2c7546ce9a0c50315966a906fef8770ecc
+
+重庆移动组播直播源下载地址： https://github.com/bungaye/gfeolx/commit/cab079bf891ad2187e371fe0c3c85f2e827b4e59
+
+重庆联通组播直播源下载地址： https://github.com/iconkrave9/okobsm/commit/2bf40c51c409d4d8cea8033d6ca48049b9100bcc
+
+重庆联通直播源下载地址： https://github.com/bungaye/gfeolx/commit/cd49a491cc0ba589584fbb6546255e5e5c5455ee
+
+重庆电信组播直播源下载地址： https://github.com/iconkrave9/okobsm/commit/3e8076933dccb6f7323ab76d901d3eb3bbb5315a
+
+重庆电信直播源下载地址： https://github.com/bungaye/gfeolx/commit/5ea31d4f14c53f7033c650e64cc8debc06dddf8a
+
+重庆 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/79d9fcef8cb09f6a93c4bb245c4dbab4c14c6bcd
+
+四川移动组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/f5f1d9ffbf6cd57af8e7eb61e9276d6bbeee416a
+
+四川电信 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/fa62b711382e9ae3f6bcadabe4de82758c20539a
+
+四川电信 IPTV 组播直播源下载地址： https://github.com/bungaye/gfeolx/commit/4020101c98a8f776271170c05463bdd0cfbccecf
+
+四川广电 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/fbae03ce71abdfb5bcda3d3b32c1273b7724c7ee
+
+四川联通组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/46bce049273dd328563b4d9cc729f1e106a8236e
+
+四川联通 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/b25e8cc03d910bff399112f67037f0d203f89195
+
+四川 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/b7bd413a2a9e3059133fc3052c1963102c992488
+
+云南电信组播 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/7c23649b1a4291aafbc4ce1b3a6ead20f0a2eb87
+
+云南移动 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/3d35c6a014a087df5778ed7459ba2d8c15c2816d
+
+云南 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/0ab67ff135b024fc31f1e87b8e1c850759bc5ee7
+
+贵州电信组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/c8e08301e36f9cadb4ad25e43c3b136bde5becb2
+
+贵州移动 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/eb3b84796bb331b86583e5806764f4a73ee304d4
+
+贵州联通组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/9a231b86c4813cdcfd9626e0647406aecf47ae48
+
+贵州联通 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/c71afaa186c5ba32975ee35e4fa10dfad4cb71cd
+
+贵州 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/839092787bfadb06e0f3b0ff3304de3579894691
+
+福建联通组播 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/75f6611d61ec96cc6a78291df9ed40d3fbeb1b13
+
+福建联通 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/a0a326f0fa76e2537c414c0e3d7d0d700d23abdf
+
+福建移动 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/cb9764f124a5d52f88208d1d15d688a63a4255b4
+
+福建电信组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/c35548b617579c0574614fdcedc236a761e7ec6c
+
+福建电信 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/391ee356c322d7e3506c24faa01b53a0d0d2dc0d
+
+福建 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/afc42960d7ec29010fda6bee5afb46fc4963909e
+
+安徽移动 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/ea96957527e8bd438ef84e9e4f7462c13f39c86f
+
+安徽电信 IPTV 组播直播源下载地址： https://github.com/bungaye/gfeolx/commit/08db2793ddd05dfcf268bcf0f03b5ddd75de7012
+
+安徽电信 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/e9ee59bda5a520c2a9272387358fd0941e854431
+
+安徽联通 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/afedfa44d9a26f6ef9400fce56df0f96d7fd7c52
+
+安徽 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/6cba22190eea8864fce5bc7f5256d206e72ea1e3
+
+陕西地方台直播源下载地址： https://github.com/bungaye/gfeolx/commit/082fff31ddd41380872a3e71a5cd006e084bbd7e
+
+陕西电信组播 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/82cb594f0e529a60f561db20804e971f4402edd0
+
+陕西电信 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/4085248e43432833f5d250d55630664e19cbde73
+
+陕西移动组播 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/266d2c905a2fb93c8f84fc8ce9c90576c22b72c9
+
+陕西移动 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/5b71b79108cd26da165a20d145a1cc8c1c95e6e9
+
+陕西 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/e9fb8c9199b32063b19199b6006216250a46fe67
+
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/b188b4aa3c69b2ab1719db134d0595f46528484e
+
+甘肃移动 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/2e4745685a5153624c1126862b30abc71a10cd4a
+
+甘肃 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/06f6b5b1d2b15e44a8c3751d740b8918a5fa2dd3
+
+山西移动组播 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/54c65266b15e590028ee5d9ae07dcc0aa9466b44
+
+山西联通组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/a2773ac4107bc7d0451fc8b0f2fabf1f5150dc00
+
+山西联通 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/cdef513f9e3decc72c85e2fcb4c49b2dbe3a7fbc
+
+山西 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/1d357a8c255f2596c2ea2603b8ccd10a6a3b1e0e
+
+天津电信组播直播源下载地址： https://github.com/iconkrave9/okobsm/commit/7401b561714638ef9785ba03ba1d7965706c7c30
+
+天津联通组播直播源下载地址： https://github.com/bungaye/gfeolx/commit/349f567b1674a1d2ad55c707abec0ca3ba9eacfb
+
+天津 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/0bf1b425e0ad3ae0d4c38cd58d9ea9f2caa9848a
+
+上海移动直播源下载地址： https://github.com/bungaye/gfeolx/commit/78c0821cef8143e1020f86c286911aef5d795941
+
+上海联通组播直播源下载地址： https://github.com/iconkrave9/okobsm/commit/c85197620b2c2da8889a6f2015253b2f66d51eb6
+
+上海联通直播源下载地址： https://github.com/bungaye/gfeolx/commit/9b0bbf2f3e8d58680e7747acd47159c45f9a6dc9
+
+上海电信组播直播源下载地址： https://github.com/iconkrave9/okobsm/commit/84e3e79892b56b68a2a5869871b3c189e825592e
+
+上海电信直播源下载地址： https://github.com/bungaye/gfeolx/commit/83b2c63d63bc8cff0327405886066709236180e7
+
+上海 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/fe434d5e014071a64a5b605bcbb54cec3f43abeb
+
+北京移动 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/a1006b5799740e9c8798298f3ebc2fa43dc6ee39
+
+北京移动组播直播源下载地址： https://github.com/iconkrave9/okobsm/commit/70f0c73d6a00678c6426b31c078f2167fa5e6999
+
+北京电信组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/888c528c422f0d8e437373651d8fe0af3137a472
+
+北京联通组播 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/5c3088090e78f270059619a73c9351875e4ec89a
+
+北京联通 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/1b08b0bc2575517e44c541ab0926e9a1ac6406bc
+
+北京 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/07afb3fac70a96ef2d47baffe09b72bb3ed8084b
+
+部分地区的移动可全网通用： https://github.com/bungaye/gfeolx/commit/720b8792a296414abb48f7e5a168dd0d9fc0ba7d
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/iconkrave9/okobsm/commit/9453432168c65386ef6b200264fa488918fb882f
+
+广播电台下载地址： https://github.com/bungaye/gfeolx/commit/f8a5269131d14049be5dbc68946458b6a29d49dd
+
+国内景区直播源下载地址： https://github.com/iconkrave9/okobsm/commit/b8fc78a6a2131ba8b576de4b9234ecf9828f9a8a
+
+轮播华数黑莓下载地址： https://github.com/bungaye/gfeolx/commit/17721ae3e6817a745a2aae597563658dc857363e
+
+台湾香港澳门电视台直播源下载地址： https://github.com/iconkrave9/okobsm/commit/d9281237a7bf30d8a1f50b8031dcff0592a4e4dd
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/bungaye/gfeolx/commit/3e90f7740a365775a3b429f3009107b9a92e412d
+
+国外电视台直播源下载地址： https://github.com/iconkrave9/okobsm/commit/2291e5d90c01cecde13a67ea3e1bb41928cc557c
+
+卫视地方台安徽农大下载地址： https://github.com/bungaye/gfeolx/commit/f12f1ae1a797fa750e2b41d006d2815c9c729da8
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/iconkrave9/okobsm/commit/c17c63997d1dbbda7b4a2c79da40196736699f2d
+
+卫视上海源下载地址： https://github.com/bungaye/gfeolx/commit/029225725b7faeeeccd9c5ede353b7da7adb6607
+
+卫视重庆广电 下载地址： https://github.com/iconkrave9/okobsm/commit/43230501e31ff0b04af07a8c8461fb4e1e023cf9
+
+卫视百视 TV 下载地址： https://github.com/bungaye/gfeolx/commit/7c7bc19db40e45a8ec9afa8e855fccc819463063
+
+移动 IPv6 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/d6e60003c7e8e6a18c6fa8d36c93435680b0d7f0
+
+国内电视台 IPv6 直播源下载地址： https://github.com/bungaye/gfeolx/commit/a7d044c579810b5d305f74d3bbf406b8e6be3de4
+
+各大卫视、上千个地方台： https://github.com/iconkrave9/okobsm/commit/531f8f3f29b207869f5df8a32d1510157f37dc45
+
+国内电视台直播源下载地址： https://github.com/bungaye/gfeolx/commit/7800063dd1294dabb992cd2e1b0dc02e91f75da8
+
+全国可用直播源： https://github.com/iconkrave9/okobsm/commit/d48d499cfb28dcfc18e650bf567c15e710bf877e
+
+包括完整内容所有已知频道： https://github.com/bungaye/gfeolx/commit/b2375210cbd9f76c41d0f5706741f1a2e7d1e0fa
+
+除成人内容以外的已知频道： https://github.com/iconkrave9/okobsm/commit/b1382a16e75ffc931ee250ecdbb0b8024a316fec
+
+收集来自世界各地公开可用的 IPTV： https://github.com/bungaye/gfeolx/commit/1dce518e00304a88fe3c64c253d6aa8cba287092
+
+稳定地址： https://github.com/iconkrave9/okobsm/commit/d98728f844e678e93d6eaebba3e347afee749145
+
+2026-06-24 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/bungaye/gfeolx/commit/59b7cbedccdebaeb63bede0cf00c93fd93d52ae9
+
+2026-06-24 更新 IPTV 工具： https://github.com/iconkrave9/okobsm/commit/9399efe95a74f94062b88f4f8a919768bd177f5a
+
+2026-06-24 更新世界各地 IPTV 频道： https://github.com/bungaye/gfeolx/commit/ca6bc76e009c946396db1790f8faeca6c34794f2
+
+2026-06-24 更新全国可用直播源： https://github.com/iconkrave9/okobsm/commit/84816d2989f41c279b815738b1c696452303f266
+
+新增各地运营商的 IPTV 地址： https://github.com/bungaye/gfeolx/commit/5d272946e22749db1846d2c88fd0f7fac7525d34
+
+插件推荐： https://github.com/iconkrave9/okobsm/commit/e7fffddb755da907e79b9c838f1626c807442feb
+
+视频教程增加： https://github.com/bungaye/gfeolx/commit/e96cb6157c054e432a631b08e26fbcab328b4dc0
+
+咪咕源失效： https://github.com/iconkrave9/okobsm/commit/2aa9db768af79362a7856054dffe0e41c2aba432
+
+2026-06-24 更新各地运营商 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/15ac7ec48f1c0b020ca5a06fd86609161666b6e0
+
+2026-06-24 更新台湾香港海外直播源： https://github.com/iconkrave9/okobsm/commit/a7ff0d5075d45813c6f25117eaf234743b44d08d
+
+新增辽宁广电直播源： https://github.com/bungaye/gfeolx/commit/33207f0f72fbfe353a06fcbbaa932ac3110a9561
+
+新增江西广电直播源： https://github.com/iconkrave9/okobsm/commit/0b4a4a75747990c5aaaa05b27e04e8c785994cab
+
+新增湖北广电直播源： https://github.com/bungaye/gfeolx/commit/fe551bb447e667d2743be4e4bf1d53f2997647a1
+
+新增中国广电 cctv + 卫视直播源： https://github.com/iconkrave9/okobsm/commit/1d9afa7ba2374ee1a58aec0df4896f6de65e74e0
+
+新增辽宁电信 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/8b639f074e2388c2b497cb773f7bf47cb984b84e
+
+2026-06-24 更新台湾香港海外直播源： https://github.com/iconkrave9/okobsm/commit/4ed699731d44d17e2c0e7e3a05fc300492de77a7
+
+新增辽宁移动直播源： https://github.com/bungaye/gfeolx/commit/4874f21ad4af5063492377a63cd298090e4057f0
+
+新增浙江杭州华数 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/156ec11b3a1251754c76851a69383596e08d81cb
+
+新增广东联通 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/18ef5b413df91da2ea8926fd27ffaf5befaf31ed
+
+新增四川广电 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/037b490ede84f9ae50cf3890ba4eb9f6cbf3b06f
+
+新增云南电信 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/e88ecd999bf3873aa53125caa679dd7ded05fe88
+
+2026-06-24 更新国内电视台直播源： https://github.com/iconkrave9/okobsm/commit/b4793378930f546c4e2fb96a99cd9dc78839e971
+
+新增福建电信 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/5924a67fe1d3f2057a1c39667117eedb79880562
+
+新增天途云 CCTV + 卫视： https://github.com/iconkrave9/okobsm/commit/b8b0be0282c37aa72b552567df691f9eb471f18b
+
+新增腾讯云 CCTV + 卫视： https://github.com/bungaye/gfeolx/commit/46d05f70983a2d43a940f5c734d7143c7cb02d19
+
+新增 CCTV 付费频道直播源： https://github.com/iconkrave9/okobsm/commit/ad550ae2926297b3a92f6b34f00e1b10c551cfa5
+
+新增广播电台： https://github.com/bungaye/gfeolx/commit/d8a1d32f68c2a56180068d2923be46f908688743
+
+2026-06-24 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/iconkrave9/okobsm/commit/f8873cc4a160d74a1d500cc6f0cb5c729b67891e
+
+2026-06-24 更新 台湾香港海外直播源： https://github.com/iconkrave9/okobsm/commit/839dd6e98a21ce48d0804caf730d69cc8df0dbd8
+
+2026-06-24 更新 国内电视台直播源： https://github.com/bungaye/gfeolx/commit/9713f252326a43eb040c1e4b9a12c81a4960e9c7
+
+国家直播源： https://github.com/iconkrave9/okobsm/commit/010bf378632fba3860caea56058fdd75a232d47a
+
+直播源： https://github.com/bungaye/gfeolx/commit/7420335d2ec6575d52558a9f112b36fe6e73947b
+
+影视剧场： https://github.com/iconkrave9/okobsm/commit/24c64c01cf5fc29a4d470344e397e7031bcbf9a1
+
+台湾香港澳门： https://github.com/bungaye/gfeolx/commit/31e90cded3c29943d78b9bba9d2319015d990956
+
+国外电视台： https://github.com/iconkrave9/okobsm/commit/58dbe2eab40e4ad85ffaa7713adb598f95095f0c
+
+国内电视台： https://github.com/bungaye/gfeolx/commit/8268f24c72e95e4b19256103764252a4ea705394
+
+更早期 2026-06-24 更新： https://github.com/iconkrave9/okobsm/commit/d306cd130ab41e026db2c09f92e2f284fea5437a
+
+各地运营商 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/870abed418bfca3e2e8b2349b28027afb0cc3d47
+
+全国可用直播源： https://github.com/iconkrave9/okobsm/commit/bb4acd3edc80c33b4f8cc6658c2c60deeb71ac91
+
+2026-06-24 更新： https://github.com/bungaye/gfeolx/commit/20721aba0f8a28b92be47953b780d4b1969943b4
+
+赞助者： https://github.com/iconkrave9/okobsm/commit/2ec47da9d81790c222eb3f1db65657c3a4fa261a
+
+文章： https://github.com/bungaye/gfeolx/commit/1899849a4a88b50de7e187726774a238faf8b573
+
+视频教程： https://github.com/iconkrave9/okobsm/commit/a079946cbff6f64ae05fb6fd4db93a7bbaec85c1
+
+插件： https://github.com/bungaye/gfeolx/commit/f824d8b9de59dd3e74d033084dd0a6882915e450
+
+工具： https://github.com/iconkrave9/okobsm/commit/8f533d60e159107f5af1f7abe3dc02afb868841e
+
+URL： https://github.com/bungaye/gfeolx/commit/47bcd6f06088ffbb44d36b0508fa5c5330ac07a1
+
+目录： https://github.com/iconkrave9/okobsm/commit/698531a6340fac4e30d7f774a07f1a0a49fbfc55
+
+喀麦隆直播电视频道： https://github.com/bungaye/gfeolx/commit/b11dca8bf34b84ab171f04a6500fe68295109aff
+
+阿富汗直播电视频道： https://github.com/iconkrave9/okobsm/commit/2c6ebdcbbf1e85ffcbb447f92ba83ad873b9ba9c
+
+海地的直播频道： https://github.com/bungaye/gfeolx/commit/554302c5104704126e4280fd6cf8c55cda2d462f
+
+高棉直播和泰国电视，电影和电视剧： https://github.com/iconkrave9/okobsm/commit/d172b217f0a8556eb2c30cc5f0be55f5ef825649
+
+厄瓜多尔直播频道： https://github.com/bungaye/gfeolx/commit/dba8557bc63b0516891955745f9d5ebe58f129d8
+
+玻利维亚直播频道： https://github.com/iconkrave9/okobsm/commit/7e555cde96211b61a4cced59f22a360e08a69d34
+
+萨尔瓦多直播频道： https://github.com/bungaye/gfeolx/commit/643ae5a6b24f23b7685ef98974c6842baeef7ee8
+
+危地马拉直播频道： https://github.com/iconkrave9/okobsm/commit/c3a956cbb3fb876555d8aca1b5a07eefae693498
+
+洪都拉斯直播频道： https://github.com/bungaye/gfeolx/commit/9b4a94674c5b6529e5a6e870f481b868d9107290
+
+多米尼加共和国直播频道： https://github.com/iconkrave9/okobsm/commit/700ed3a2221467abd2bea958aadcba9089a4986c
+
+哥斯达黎加直播频道： https://github.com/bungaye/gfeolx/commit/22119e33fdad8e723c75075521275f03fd94cc23
+
+来自世界各地的个电视频道和个摄像机： https://github.com/iconkrave9/okobsm/commit/948dc34c828db3cf7746ccd2818050953f34052a
+
+免费数据库： https://github.com/bungaye/gfeolx/commit/0cf853a522792fa8dd131ede0891864624080eb2
+
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/iconkrave9/okobsm/commit/3743bee4c78d58e813696cd234705fd0074b98c0
+
+超过个国家地区的个高清频道和： https://github.com/bungaye/gfeolx/commit/8b0a9b6221e8731b726489d24833c7077282439f
+
+超过个直播电视频道影视节目： https://github.com/iconkrave9/okobsm/commit/45b5641e5692ba9de0a12cc454ce8047365019a2
+
+提供商列表： https://github.com/bungaye/gfeolx/commit/8e739648f733abd1018bdb1d6a8929b0ab492a8a
+
+提供者： https://github.com/iconkrave9/okobsm/commit/0551a8b9b675e93e05865caf82cc1bdff577b30b
+
+客户端服务器媒体播放器： https://github.com/bungaye/gfeolx/commit/326a0c8ba94a524585d6cd2931194d17564a9a1c
+
+支持播放列表文件： https://github.com/iconkrave9/okobsm/commit/8513ef6db9d269be075e35547f5c5633b49704ff
+
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/bungaye/gfeolx/commit/429dad669c733a6c31b575412cda9b83f3bfdbf6
+
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/iconkrave9/okobsm/commit/1f5edf349c6bf465cfabbaa6dc545da0a70d1ace
+
+点 即可： https://github.com/bungaye/gfeolx/commit/d5276af5a6f3e8670c758f3c8cc6b478a6f6c132
+
+第三行不用管： https://github.com/iconkrave9/okobsm/commit/19ac62c6655196b425379b557ef0180718cdee2c
+
+第二行输入上面给你的地址： https://github.com/bungaye/gfeolx/commit/3667a68147dacd7bbf33a8540162979d161c9a72
+
+第一行随意输入一个名字： https://github.com/iconkrave9/okobsm/commit/ad158f37605cefd6b9c1c8178a11fe8e150a98ea
+
+选择 远程播放列表文件： https://github.com/bungaye/gfeolx/commit/23d2ddd75b17bf1015f187fdd9c37ed183ac2942
+
+打开 点击 号： https://github.com/iconkrave9/okobsm/commit/24af5ed544c8fef21253ed8b1a01f27e530c8c0d
+
+食用指南： https://github.com/bungaye/gfeolx/commit/3bb38c0ddffc8c56fa03f5839ed2851b08657c5f
+
+适用于 macOS 的现代媒体播放器： https://github.com/bungaye/gfeolx/commit/8b03b53066661ebf58a1f388efff436e49b48c50
+
+直播电视和广播客户端插件： https://github.com/iconkrave9/okobsm/commit/36530409cf49ba0b2d6cb700b0a5a4d7b610c645
+
+具有库支持的免费跨平台媒体播放器： https://github.com/bungaye/gfeolx/commit/15afd1a9cd7b05f94238921ff0646d0bf3e1fe19
+
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/iconkrave9/okobsm/commit/c31b68dea7e346b91e9d84e01f914e4eb587affd
+
+支持 IPTV 流的应用程序： https://github.com/bungaye/gfeolx/commit/b53ad66b6b289e75b3bad08d78785f01ec05e4c9
+
+工具： https://github.com/iconkrave9/okobsm/commit/aa8a6ffd065463f2880742cfc3565e2271e7e21e
+
+轮播华数求索爱奇艺 2026-06-24 更新： https://github.com/bungaye/gfeolx/commit/fe3ad5dad02220e204abd9be9acaa44e667a5b3a
+
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/iconkrave9/okobsm/commit/435762bfa64df1dd4fac527a8c068225297fc24d
+
+台湾香港海外直播源 2026-06-24 更新： https://github.com/bungaye/gfeolx/commit/481cec5cb0dd7e28d71fd1d60edb53d22ae8853a
+
+各大卫视、上千个地方台： https://github.com/iconkrave9/okobsm/commit/39202d2433f4b2f7f7c0b8290b39da33a9aa4ff4
+
+国内电视台直播源 2026-06-24 更新： https://github.com/bungaye/gfeolx/commit/a9575a117df374957fa4f9bc51fd2a2d9e4494fb
+
+卫视腾讯云： https://github.com/iconkrave9/okobsm/commit/f83f86486c9b7a0dd7d2e3b7cc0767281e4e3c7e
+
+卫视平顶山学院教育网： https://github.com/bungaye/gfeolx/commit/9fbe2d28efeb532c557f0ee596c20b191fd1cdf2
+
+卫视天途云： https://github.com/iconkrave9/okobsm/commit/88c60830b957c27b9c9bc803ed9e68ef37cfbc15
+
+卫视地方台安徽农大： https://github.com/bungaye/gfeolx/commit/b618187a4545017b5e942e4946b7853cdb47f288
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/iconkrave9/okobsm/commit/23f2414ffce0c90150b978495d8814b1d1cdb983
+
+央视卫视广西移动直播源： https://github.com/bungaye/gfeolx/commit/936e5a9f982ef4de742e1a36b99c0752de612ef2
+
+付费频道直播源： https://github.com/iconkrave9/okobsm/commit/ff03be8a3ba7b0771c4a24fa2109474a3fbff476
+
+国家直播源多个全部有效： https://github.com/bungaye/gfeolx/commit/53f38a8e992d8aa7fd21de0d4fcef89ab1ac5047
+
+直播源全部有效： https://github.com/iconkrave9/okobsm/commit/257161a3fc39369939ba1bcdf3888d62ee9f9130
+
+全部有效： https://github.com/bungaye/gfeolx/commit/9153887e5389719bdd79b9509a4dea60738aeba4
+
+直播源全部有效老电脑别用： https://github.com/iconkrave9/okobsm/commit/82da1be65ccd79412cb6f0bd9492a5c429fccbdc
+
+影视剧场全部流畅： https://github.com/bungaye/gfeolx/commit/efbbb40892330e61a2a1bdcdf91f0481ed6af87d
+
+全部可用： https://github.com/iconkrave9/okobsm/commit/3faf1d607fa47fa4a8b09ff73308b7849aa10716
+
+我的播放源： https://github.com/bungaye/gfeolx/commit/4f3262e1dafaa03a764de5d647fff5c599004c6b
+
+其他直播源 不确定有效性： https://github.com/iconkrave9/okobsm/commit/58a557bba4bc868a683b23cf684cc868286734e3
+
+新疆电信组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/9f73f0b2a85428b94279309c614190b42eb55400
+
+新疆 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/ad21ccfe9597a8e2cdcbb16b15a014898d2f807b
+
+内蒙古联通 udp 组播下载地址： https://github.com/bungaye/gfeolx/commit/28136176fffff9baaa34f65d3959fe9d02289a21
+
+内蒙古联通 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/0124ccb927c9a0fa3038cfce1d991dd05996e014
+
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/cd245eff0ffed217d12afce8a1cc11ab316c1574
+
+内蒙古电信 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/13d4e4d376980001c2f80bfabb2bf0b350d970cb
+
+内蒙古 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/8c110ce21e207b9e032516fe0b9883c5672e8601
+
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/1f115fd4ca7da2501983d58d2d40f69385bf1f0d
+
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/8ac306f8af40ae4265c652ca05c96a4dc1140323
+
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/a4acf8b12d15e8522e95d61b1dedde17f07ed782
+
+黑龙江移动 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/64ebb8df571615cce478e6e22471dad0ebdb2610
+
+黑龙江 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/9f4f5f7c373915398b5c39f6b1d879f9f9756443
+
+吉林电信组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/a6faa56f9e33f2dd39543dca1f311edf09f55397
+
+吉林 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/0c248a832d435973c6e4a65184bb94f849597320
+
+辽宁移动直播源下载地址： https://github.com/bungaye/gfeolx/commit/f6773db6c1e902a9b5f551d7d8f374d16cc9f73e
+
+辽宁电信 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/d1e73a1d815f06f2dfaa4b9f79ee69a04cb2605e
+
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/bungaye/gfeolx/commit/6a820ef54222a156e3bd1c316a34aa621c5b8f64
+
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/49861ddbd2557b989adb6c2f739fbf6f1de5aede
+
+辽宁联通 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/242633b8bbcfe45c61c784b3e41f2635a90238fd
+
+辽宁 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/381abcd34a9146fc27342d213e6040669ed0c063
+
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/bungaye/gfeolx/commit/a46496aec7a4d722875541082910d2287ea95e47
+
+浙江电信 IPTV 组播直播源下载地址： https://github.com/iconkrave9/okobsm/commit/c1c1d612c80c8c076daccea933c13811647051ce
+
+浙江联通 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/9111520683a11ebbb2f8b90ce33c3f4959c04f1f
+
+浙江移动 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/b181574c121e4fb165dcd508e77f718612934481
+
+浙江 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/9476538908b0ce0c93f805e1379d5cd1f5ef34b5
+
+江西联通 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/97db246060726087c6eee58e2f222485babeb666
+
+江西电信组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/657bd4a3590bec2d1fb02b0b697635b2533ae5b9
+
+江西电信 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/c928f78ff734f59a4f4f521cabadf5a61a965504
+
+江西移动 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/bef9782b063a0f7669ee598f993dd4285df2ff0f
+
+江西 IPTV 直播源： https://github.com/iconkrave9/okobsm/commit/03895220050a2dca6e8496471150388d67b7e63d
+
+江苏移动 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/82eba820aea73f8eb1537ccf93fafc526e9e33c1
+
+江苏电信组播 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/205588cf65e531eb4924ecc07136596e6b1a555c
+
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/7ec04cc9e39fda08c801637c90f7130ba3e0319a
+
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/9de47014c6236201b02af2c53668e817dda72bb2
+
+江苏南京电信 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/c1aeb2abba5b8be109e41ab6ecb0c42b1aa4e91e
+
+江苏电信 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/a1301ba5af8aabc3b9aa85a9822c2473467c5481
+
+江苏 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/71bbb0c4722f23e1900bb835d841c869dac162f6
+
+安徽广电 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/5c37647d9fa8793ac3b489d7726de8a697ea0ac1
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/9a43ef0c1fb68db964dd73a4b4a178464afa007d
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/3521c9361ef66e4a143ee5a2433c1aea9f13c02e
+
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年06月24日14时55分03秒
+来源：https://github.com/bungaye/gfeolx/commit/ad9e289ea77c7dcb4029a3f6d2dbad400301f6d3
+
+来源：https://github.com/iconkrave9/okobsm/commit/2568b8e5fa671b607f254a00f3d950c3cead031c
+
+来源：https://github.com/bungaye/gfeolx/commit/bbe36745b5edd93ef0dcc65350d2ea499371d16d
+
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年06月24日，14时55分03秒
